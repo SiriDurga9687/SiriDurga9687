@@ -55,9 +55,11 @@ My journey is just beginning, and I'm excited about what I'll build next!
 
 ## 🤝 Let's Connect
 
-💼 **LinkedIn:** [Connect with me](YOUR_LINKEDIN_URL)
+💼 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/siri-durga-jakkamsetti494931264/)
 
-💻 **GitHub:** You're already in the right place!
+💻 **GitHub:** [Explore my repositories](https://github.com/SiriDurga9687)
+
+✨ Always open to learning, collaboration, and new opportunities!
 
 ---
 
